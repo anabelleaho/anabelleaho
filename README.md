@@ -11,7 +11,7 @@
 
 - 🐹 I do volunteer work with a small animal rescue in my free time
   
-- 🐶 ..and also enjoy outdoor activities with my dog too!
+- 🐶 ... and also enjoy outdoor activities with my dog too!
   
 - 📱 You can find me on my [LinkedIn](https://www.linkedin.com/in/anabelle-ho/) profile here
 
